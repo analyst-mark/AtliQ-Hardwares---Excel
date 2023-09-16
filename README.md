@@ -1,1 +1,0 @@
-# AtliQ-Hardwares---Excel
